@@ -24,3 +24,6 @@ tryth
 uyrww5e7
 ghigg
 chanti
+  chintu
+  chinni
+  
